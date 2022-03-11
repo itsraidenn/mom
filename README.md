@@ -31,3 +31,10 @@ ERC-20: 0x9c935D6f9ccd9D7e44A9BA2e3Ca0F4581a73A067
 TRC-20: TTph61TMEx7qMw5k4DKdhnyNFvPzex9WZv
 
 BTC: 13MobJ9GxMiUKr4FcvB3FboSBEA7PasSrb
+
+
+I will continue to update this thread
+
+
+
+(3/12) update - add pathology report + scan
