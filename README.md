@@ -12,7 +12,7 @@ Someday I may reflect on this moment as the source of my own mettle, but not ton
 
 Tonight, I am scared. 
 
-For those of you who may not know me, I am 28 years and, in addition to my mother, I have a younger sister. I’ve been the sole provider for my family from the moment I was able to get a job—I put my sister, as well as myself, through college and took charge of my grandparents’ house. My goal in life was always to help my mother retire. This, however, came sooner than I expected. She had to quit her job to take care of her parents in the late term of their lives. I took responsibility for the house and all expenses that came with it while sacrificing most of my youth, and I would do it again. 
+For those of you who may not know me, I am 28 years old and, in addition to my mother, I have a younger sister. I’ve been the sole provider for my family from the moment I was able to get a job—I put my sister, as well as myself, through college and took charge of my grandparents’ house. My goal in life was always to help my mother retire. This, however, came sooner than I expected. She had to quit her job to take care of her parents in the late term of their lives. I took responsibility for the house and all expenses that came with it while sacrificing most of my youth, and I would do it again. 
 
 My grandparents passed within 6 months of each other, and my mother fell into depression. Still, though, smiles more than anyone I know. I made a promise that I would forever take care of her and that is why I do what I do. 
 
