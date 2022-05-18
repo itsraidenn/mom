@@ -26,11 +26,11 @@ Asking for help has never easy for me, as I’ve always pushed myself to overcom
 
 If you are able to contribute in any capacity during our time of need we would greatly appreciate it. 
 
-ERC-20: 0x9c935D6f9ccd9D7e44A9BA2e3Ca0F4581a73A067
+ERC-20: 0xaB1D3a769472B39E40F22E44134c86C782bd961A
 
-TRC-20: TTph61TMEx7qMw5k4DKdhnyNFvPzex9WZv
+TRC-20: TSiuxvM5tsaDmuCBcvNybM6TvyktmRbQKd
 
-BTC: 13MobJ9GxMiUKr4FcvB3FboSBEA7PasSrb
+BTC: 14izYWN5JWjK3rwyHHdoerxov5XeSwwKLn
 
 
 I will continue to update this thread
@@ -43,3 +43,8 @@ Path Report: https://gyazo.com/918cdfd89a77f6926dda8762ad8bf37c
 
 Scan: https://gyazo.com/7008f1aafff8a249c0f5a5a44c5c1051
 
+(5/18) update: - surgery date
+
+Hi all, just wanted to take this time to thank everyone that has reached out to me, shared and donated to help my mom and my family. I truly and grateful for you all. we have reached just under 20% of the goal. I have taken up a second job as well. The surgery has been scheduled for May 27th, 2022. so hope all goes well and this can be put behind us. 
+
+thank you so much. 
